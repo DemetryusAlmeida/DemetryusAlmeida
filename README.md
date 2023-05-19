@@ -1,4 +1,4 @@
-### Hello! I'm Demetryus, and i'm new in this community :)
+### Hello! I'm Demetryus :)
 
   ##
 
